@@ -23,4 +23,5 @@ Other Content Types: "Game Edits," "Attitude Memes," and "Sad Reels" had lower e
 🔹 Audience Growth 👥
 Total Followers: Constant at 260 over five months.
 New Followers: Low acquisition; no new followers in May.
+
 Insight: Despite high engagement, audience growth is limited. Focus on increasing posting frequency and promoting top-performing content to attract more followers.
